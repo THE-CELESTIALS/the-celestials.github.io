@@ -1,1 +1,1 @@
-# thecelestials.github.io
+# the-celestials.github.io
